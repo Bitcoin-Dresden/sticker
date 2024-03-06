@@ -1,4 +1,4 @@
-Hier sollen Logo-Entwürfe zur Nutzung durch die Gruppe gesammelt werden.
+Hier sollen Logo-Entwürfe und Vorlagen für Sticker zur Nutzung durch die Gruppe gesammelt werden.
 
 
 ## Links
